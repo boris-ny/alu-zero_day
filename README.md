@@ -1,2 +1,5 @@
-My first read me
-Only time to update
+- My first read me and git repository
+
+- Time to make History 😂😂😭😭
+
+**I NEED FRIENDS😪**
